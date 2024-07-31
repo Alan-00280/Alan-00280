@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alan
-- 👨‍🎓 I'm high school student that likes to programming
+- 👨‍🎓 I'm college student
 - 📫 You can reach me at alanperdana08@gmail.com
 
 <!---
